@@ -1,4 +1,4 @@
-# ThakkarRonak.github.io
+# Thakkar Ronak Cover Letter
 The Complete Portfolio of Ronak Thakkar | Thinker an Winker
 
 Dear Hiring Manager,
