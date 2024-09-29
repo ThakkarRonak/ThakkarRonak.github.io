@@ -12,6 +12,6 @@ I am particularly drawn to the opportunity at your company due to the emphasis o
 I am looking forward to the possibility of bringing my unique blend of skills to your esteemed team and contributing to the continued success of your projects. Thank you for considering my application.
 
 Ronak Thakkar
-Ahmedabad, Gujarat
+Gujarat, INDIA.
 thakkaronak.007@gmail.com
 linkedin.com/in/ronak-thakkar5
