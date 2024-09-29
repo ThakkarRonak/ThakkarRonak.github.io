@@ -13,5 +13,5 @@ I am looking forward to the possibility of bringing my unique blend of skills to
 
 Ronak Thakkar
 Ahmedabad, Gujarat
-techextensor007@gmail.com
+thakkaronak.007@gmail.com
 linkedin.com/in/ronak-thakkar5
