@@ -14,4 +14,4 @@ I am looking forward to the possibility of bringing my unique blend of skills to
 Ronak Thakkar
 Gujarat, INDIA.
 thakkaronak.007@gmail.com
-linkedin.com/in/ronak-thakkar5
+[LinkedIn](https://www.linkedin.com/in/ronak-thakkar5/)
