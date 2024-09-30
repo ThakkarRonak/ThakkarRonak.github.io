@@ -1,4 +1,4 @@
-# Thakkar Ronak Cover Letter
+# Ronak Thakkar Cover Letter
 The Complete Portfolio of Ronak Thakkar | Thinker an Winker
 
 Dear Hiring Manager,
